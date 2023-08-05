@@ -12,3 +12,21 @@ Pancakes are a beloved breakfast food, but their origin and history is widely di
 Today pancakes have become a favorite brunch or breakfast food around the world. From simple recipes like french toast pancakes to more elaborate recipes like crepes and Swedish pancakes, there is a pancake out there for everyone! With the rise of veganism and new diets, pancake recipes have also become more specialized. For example, there are now gluten-free, dairy-free, and even paleo friendly pancake recipes that cater to different lifestyles. 
 
 No matter how you make them, one thing is certain: pancakes will always be a tasty breakfast food loved by all!
+
+# 
+
+## Jordan's pancakes
+
+* 1 cup flour
+* 1 cup nilk
+* 1 tablespoon icing sugar
+* 1 teaspoon salt
+* 1 teaspoon baking powder
+* 1 egg
+* 1 tablespoon veg oil
+
+Mix all dry ingredients together in large bowl.
+Mix all wet ingredients and add to bowl all at once.
+Whisk until batter is smooth, but not more.
+With 1/2 cup measure, scoop and fry in a medium-hot well-oiled pan.
+Flip when out edge has stable holes left from bubbles in batter.
