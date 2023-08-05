@@ -18,7 +18,7 @@ No matter how you make them, one thing is certain: pancakes will always be a tas
 ## Jordan's pancakes
 
 * 1 cup flour
-* 1 cup nilk
+* 1 cup milk
 * 1 tablespoon icing sugar
 * 1 teaspoon salt
 * 1 teaspoon baking powder
@@ -29,4 +29,4 @@ Mix all dry ingredients together in large bowl.
 Mix all wet ingredients and add to bowl all at once.
 Whisk until batter is smooth, but not more.
 With 1/2 cup measure, scoop and fry in a medium-hot well-oiled pan.
-Flip when out edge has stable holes left from bubbles in batter.
+Flip when outermost edge has stable holes left from popped bubbles in the batter.
