@@ -30,3 +30,46 @@ Mix all wet ingredients and add to bowl all at once.
 Whisk until batter is smooth, but not more.
 With 1/2 cup measure, scoop and fry in a medium-hot well-oiled pan.
 Flip when outermost edge has stable holes left from popped bubbles in the batter.
+
+
+
+Will's Favourite Shakespeare Monologues
+
+Richard II  · III ii 148  · Verse
+
+Richard:
+
+No matter where; of comfort no man speak:
+Let's talk of graves, of worms, and epitaphs;
+Make dust our paper and with rainy eyes
+Write sorrow on the bosom of the earth,
+Let's choose executors and talk of wills:
+And yet not so, for what can we bequeath
+Save our deposed bodies to the ground?
+Our lands, our lives and all are Bolingbroke's,
+And nothing can we call our own but death
+And that small model of the barren earth
+Which serves as paste and cover to our bones.
+For God's sake, let us sit upon the ground
+And tell sad stories of the death of kings;
+How some have been deposed; some slain in war,
+Some haunted by the ghosts they have deposed;
+Some poison'd by their wives: some sleeping kill'd;
+All murder'd: for within the hollow crown
+That rounds the mortal temples of a king
+Keeps Death his court and there the antic sits,
+Scoffing his state and grinning at his pomp,
+Allowing him a breath, a little scene,
+To monarchize, be fear'd and kill with looks,
+Infusing him with self and vain conceit,
+As if this flesh which walls about our life,
+Were brass impregnable, and humour'd thus
+Comes at the last and with a little pin
+Bores through his castle wall, and farewell king!
+Cover your heads and mock not flesh and blood
+With solemn reverence: throw away respect,
+Tradition, form and ceremonious duty,
+For you have but mistook me all this while:
+I live with bread like you, feel want,
+Taste grief, need friends: subjected thus,
+How can you say to me, I am a king?
